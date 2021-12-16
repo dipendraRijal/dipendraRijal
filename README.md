@@ -13,7 +13,7 @@ My name is Dipendra Rijal from Pokhara. I live in Pokhara 5, Parsyang. I read in
 
 # My Social Profile 
 - [Facebook](https://www.facebook.com/dipendra.rijal1094/) 
-- [Instagram](https://www.instagram.com/) 
+- [Instagram](https://www.instagram.com/dpendra_reezal/) 
 - [Twitter](https://twitter.com/home)
 
 # Quote I Liked
