@@ -1,4 +1,4 @@
-# Dipendra Rijal.
+# Dipendra Rijal
 My name is Dipendra Rijal from Pokhara. I live in Pokhara 5, Parsyang. I read in Informatics College Pokhara.
 <a href="https://github.com/dipendraRijal"><img src="https://github-readme-stats.vercel.app/api?username=dipendraRijal&hide_border=true&show_icons=true" alt="edisonlee55's github stats"></a>
 
